@@ -1,3 +1,6 @@
+atualmente estou desempregado,focado em virar atleta profissional do futebol.
+moro com minha familia
+gosto de fute
 ## Hi there 👋
 
 <!--
